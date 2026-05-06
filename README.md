@@ -1,1 +1,1 @@
-git add ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=protectioncharm)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=protectioncharm)
