@@ -23,7 +23,7 @@ alt="description" width="300" />
 
 <p align="center">
 $$\color{#E89EB8} \text{˚ welcome heere ;p ‧°}$$
-$$\color{#E89EB8} \text{˚ this is Val!! :3.‧°}$$
+$$\color{#E89EB8} \text{˚ this is Val!! :3 ‧°}$$
 
 
   <p align="center">
