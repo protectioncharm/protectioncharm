@@ -10,7 +10,7 @@ alt="description" width="1000" />
   <img src="https://komarev.com/ghpvc/?username=protectioncharm&color=E89EB8&label=doffy!&style=upper" alt="Vamps Counter" />
 </p>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Gaegu&size=105&duration=4500&pause=1000&color=FFB2D7&center=true&width=2000&height=430&lines=villain+violent!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Gaegu&size=105&duration=4500&pause=1000&color=FFB2D7&center=true&width=2000&height=430&lines=villain+and+violent)](https://git.io/typing-svg)
 
 
 
