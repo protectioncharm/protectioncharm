@@ -35,7 +35,9 @@ alt="description" width="1000" />
 
 <p align="center">
 $$\color{#E89EB8} \text{˚  please check StrawPage‧°}$$
-$$\color{#E89EB8} \text{˚ and if you want, leave a message in my atabook :3.‧°}$$
+$$\color{#E89EB8} \text{˚ and if you want, leave a message in my atabook .3. ‧°}$$
+
+$$\color{#E89EB8} \text{˚  thank you Cael for this beautiful gift <3 ‧°}$$
 
  <p align="center">
 <img src="https://github.com/user-attachments/assets/7dc0cd0e-ff25-44e4-85b8-0c8ed7af4807" 
