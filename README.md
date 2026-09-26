@@ -1,4 +1,3 @@
-![cuties counter on GitHub](https://komarev.com/ghpvc/?username=protectioncharm&color=7F5A8E&name=cuties)
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/6cd22b14-f25f-4987-b2f0-7b8ba81f3e6f" 
