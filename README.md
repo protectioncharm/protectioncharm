@@ -62,10 +62,17 @@ $$\color{#E89EB8} \text{˚  LOOK AT THESE FATTIEESSS OMGG°}$$
 
 
 $$\color{#E89EB8} \text{˚  Since I couldnt fit all of my friends in the bio, I'll mention em here :P°}$$
+
+[Kimchi] (https://github.com/walkingdeathtrap)
+
+[Reki] (https://github.com/Lo0nyGoon)
+
 [Mariah] ([https://www.github.com/username](https://github.com/Mariahh113))
 
 [Eleric] (https://github.com/3GGR3SS1VE-L1NK))
 
 [Eiko] (https://github.com/ch3rubunz))
 
+[Amy] (https://github.com/Ghost1amy)
 
+[Alex] (https://github.com/sshinjiikari)
