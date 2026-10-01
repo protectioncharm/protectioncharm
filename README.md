@@ -51,3 +51,15 @@ alt="description" width="70" />
 alt="description" width="1000" />
 
 
+
+
+
+$$\color{#E89EB8} \text{˚  LOOK AT THESE FATTIEESSS OMGG°}$$
+<img width="362" height="217" alt="1000161412-removebg-preview" src="https://github.com/user-attachments/assets/6d09ae64-266f-4756-a54c-5865d28d6a04" />
+
+
+
+
+
+
+
