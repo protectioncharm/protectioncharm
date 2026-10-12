@@ -58,18 +58,3 @@ $$\color{#E89EB8} \text{˚  LOOK AT THESE FATTIEESSS OMGG°}$$
 
 
 <img width="362" height="217" alt="1000161412-removebg-preview" src="https://github.com/user-attachments/assets/6d09ae64-266f-4756-a54c-5865d28d6a04" />
-
-
-
-$$\color{#E89EB8} \text{˚  Since I couldnt fit all of my friends in the bio, I'll mention em here :P°}$$
-
-
-[Mariah] ([https://www.github.com/username](https://github.com/Mariahh113)
-
-[Eleric] (https://github.com/3GGR3SS1VE-L1NK)
-
-[Eiko] (https://github.com/ch3rubunz)
-
-[Amy] (https://github.com/Ghost1amy)
-
-[Alex] (https://github.com/sshinjiikari)
