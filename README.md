@@ -63,9 +63,6 @@ $$\color{#E89EB8} \text{˚  LOOK AT THESE FATTIEESSS OMGG°}$$
 
 $$\color{#E89EB8} \text{˚  Since I couldnt fit all of my friends in the bio, I'll mention em here :P°}$$
 
-[Kimchi] (https://github.com/walkingdeathtrap)
-
-[Reki] (https://github.com/Lo0nyGoon)
 
 [Mariah] ([https://www.github.com/username](https://github.com/Mariahh113)
 
